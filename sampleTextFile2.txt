@@ -1,1 +1,0 @@
-This is a simple textfile[D[D[D[D [C[ file, text is ok
